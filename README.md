@@ -1,0 +1,3 @@
+It started off as a platform *(platform it seems)* for us to give opinions about teachers, and the most upvoted ones stayed on top.  
+
+Well, let's just say it wasn't used as intended...
